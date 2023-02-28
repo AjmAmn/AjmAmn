@@ -11,13 +11,13 @@
 
 - 🌱 I’m currently learning **everything**
 
-- 👯 I’m looking to collaborate with **anyone**
 
-- 🤝 I’m looking for help with **my studies**
+
+
 
 - 📫 How to reach me **ajmalameen04gmail.com**
 
-- ⚡ Fun fact **coca cola was originally green**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
